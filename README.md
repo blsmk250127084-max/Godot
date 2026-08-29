@@ -9,3 +9,7 @@
 
 4. Mengatur besar BGnya
    saya melihat vidionya lagi
+
+
+   Vidio Gameplay
+   https://drive.google.com/drive/folders/1_f7S7ql3KF7g9wRjw0tgpo42_HeOzFD8?usp=sharing
